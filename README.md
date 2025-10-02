@@ -1,0 +1,1 @@
+# miyako6105.github.io
